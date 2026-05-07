@@ -1,4 +1,4 @@
-
+best bedwars Scripts is the best bedwars Script, featuring undetectable and unlimited stamina. Safe and powerful for all your needs.
 
 
 
